@@ -1,3 +1,2 @@
 # discordbot
-discord webhook test
-test sexy
+eWhores on top baby
